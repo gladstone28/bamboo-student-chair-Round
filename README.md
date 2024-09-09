@@ -162,7 +162,7 @@ Costs per Month:
 
 This business plan provides a structured approach for producing and selling bamboo student chairs. With the growing demand for sustainable products, the market for bamboo furniture is promising, and the financials suggest a reasonable path to profitability.
 
-
+![](./bamboo-student-chair.webp)
 
 
 

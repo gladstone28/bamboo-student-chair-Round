@@ -165,5 +165,9 @@ This business plan provides a structured approach for producing and selling bamb
 ![](./bamboo-student-chair.webp)
 
 
+CONTACT:
 
+Contact Gladstone Rose of Quality Solutions Limited ( WhatsApp 876-783-2423) to shedule a zoom meeting to discuss your bamboo project
+
+© 2024 Gladstone Rose-QSL Limited. All rights reserved until given direct permission to use this document after a schedued zoom meeting.
 

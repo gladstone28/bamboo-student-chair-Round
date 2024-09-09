@@ -67,11 +67,15 @@ ChatGPT said:
 Here's a basic business plan for producing and selling Bamboo Student Chairs, based on the steps provided for manufacturing. This plan includes an executive summary, market analysis, financial plan, and implementation strategy.
 
 1. Executive Summary
+
 **Business Name:** EcoSmart Bamboo Chairs
+
 **Business Type:** Manufacturing and Sales
+
 **Product:** Sustainable, eco-friendly bamboo student chairs for schools and educational institutions.
 
 **Mission:** To provide eco-friendly, durable, and affordable seating solutions to schools, contributing to sustainability efforts.
+
 **Target Market:** Schools, educational institutions, and eco-conscious consumers.
 
 2. Business Objectives

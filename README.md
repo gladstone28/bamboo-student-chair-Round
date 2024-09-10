@@ -3,7 +3,8 @@
 
 Creating a bamboo student chair can be a sustainable and eco-friendly alternative for schools. Here's a general guide to help you design and build one:
 
-Materials Needed:
+##### Materials Needed:
+
 1. Bamboo poles (Thick and sturdy for the frame, thinner for support)
 2. Bamboo slats (For seating and backrest)
 3. Wood glue or epoxy resin (For joining bamboo parts)

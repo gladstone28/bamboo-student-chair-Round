@@ -15,7 +15,7 @@ Creating a bamboo student chair can be a sustainable and eco-friendly alternativ
 8. Rope or twine (For lashing joints together, optional)
 9. Varnish or sealant (To protect the bamboo)
 
-####cl Step-by-Step Instructions:
+#### Step-by-Step Instructions:
 
 **1. Design the Chair**
 

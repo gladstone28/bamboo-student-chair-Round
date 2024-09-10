@@ -16,37 +16,38 @@ Materials Needed:
 
 ##### Step-by-Step Instructions:
 
-1. Design the Chair
+**1. Design the Chair**
 
 - Create a simple design with a seat height of about 17-18 inches and a seat depth of 15-18 inches.
 - The chair legs can be around 1.5–2 inches in diameter, while the backrest slats and seat can be made from thinner bamboo.
 
-2. Cut Bamboo to Size
+**2. Cut Bamboo to Size**
 
 - Legs: Cut four sturdy bamboo poles for the legs. These should be about 17–18 inches for a standard student chair.
 - Seat Frame: Cut bamboo poles to form a rectangular seat frame, around 15 x 18 inches.
 - Backrest Frame: Cut two vertical bamboo poles around 12–16 inches high for the backrest and a horizontal pole for the top part.
 - Seat Slats: Cut several bamboo slats, roughly 1-2 inches wide and long enough to fit across the seat frame.
 
-3. Assemble the Frame
+**3. Assemble the Frame**
 
 - Seat Frame: Attach the four legs to the seat frame by drilling small holes and using screws or strong adhesive. Alternatively, you can lash the joints tightly with twine for added support.
 - Backrest: Attach the two vertical poles to the back part of the seat frame. Then, attach the horizontal slat for the top of the backrest.
 
-4. Prepare the Seat and Backrest
+**4. Prepare the Seat and Backrest**
 
 - Seat: Place the bamboo slats across the seat frame, evenly spaced. Secure them using wood glue, or drill small holes and screw them into the seat frame.
 - Backrest: Similarly, attach bamboo slats vertically or horizontally on the backrest frame.
 
-5. Reinforce Joints
+**5. Reinforce Joints**
 
 - Use additional wood glue or rope lashing to reinforce each joint. Ensure the chair is stable and can support weight.
 
-6. Sand the Bamboo
+**6. Sand the Bamboo**
 
 - Use sandpaper to smooth out any rough edges or splinters on the bamboo surfaces, especially the seat and backrest areas.
 
-7. Varnish or Seal the Bamboo
+**7. Varnish or Seal the Bamboo**
+
 - Apply a protective varnish or sealant to protect the bamboo from moisture and wear. This will also give the chair a polished finish.
 
 Optional Additions:
